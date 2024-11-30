@@ -12,4 +12,7 @@ actividades varias en clases
 4-
 ![image](https://github.com/user-attachments/assets/f1bde7a0-8363-4447-ab12-a5447b56fa2d)
 ![image](https://github.com/user-attachments/assets/a5a00ed5-e1f5-4c4d-b077-7f8d6292c653)
+5-
+![image](https://github.com/user-attachments/assets/25045520-8578-42c3-865d-f8c70269fd95)
+![image](https://github.com/user-attachments/assets/06cb8970-9170-478d-9af8-826f6e478387)
 
